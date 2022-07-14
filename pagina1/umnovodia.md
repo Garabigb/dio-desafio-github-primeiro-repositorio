@@ -1,0 +1,1 @@
+Nas terras de Ameroc você é um jovem que, como varios outros, almeja uma vida de aventuras desbravando os antigos misterios destas terras. Após um infância de treinamentos basicos 
